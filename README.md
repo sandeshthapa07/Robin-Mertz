@@ -1,2 +1,2 @@
 # Robin-Mertz
-bah overvalue
+elliptical hence
